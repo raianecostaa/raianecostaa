@@ -1,4 +1,4 @@
-Olá!👋 Sou Raiane Costa!
+Olá!👋❤️Sou Raiane Costa!
 
 - 🎓 Atualmente  estou cursando o  ultimo ano do curso técnico  em informática integrado ao médio ,no Instituto  federal do Piauí.
 - 🗣️ Boa comunicação,trabalho bem em grupo e tenho conhecimento sobre linguagem HTML
